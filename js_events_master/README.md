@@ -1,2 +1,0 @@
-# smn8j1_javascript_events
-GQHSDGHSDHBSDBJJBSBKSBKDBSDKH
